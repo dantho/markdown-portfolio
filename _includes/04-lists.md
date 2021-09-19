@@ -7,3 +7,4 @@ And here are my favorites:
 1. confused :confused:
 2. astonished :astonished:
 3. thumbs up :thumbsup: aka "+1" :+1:
+4. 😱
